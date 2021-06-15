@@ -1,0 +1,5 @@
+- Hi, I’m @traumatram
+- I’m interested in discord bots and discord clients
+- I’m currently learning python and violin
+- I’m looking to not collaborate
+- How to reach me: traumagenerator@pm.me
